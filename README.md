@@ -20,6 +20,8 @@ Then that's where the video starts from
 
 [https://www.youtube.com/shorts/JWa3ucuNt54](https://www.youtube.com/shorts/JWa3ucuNt54)
 
+WebRing Code Resources Below:
+
 [https://howlcon.neocities.org/Resources](https://howlcon.neocities.org/Resources)
 
 [https://howlcon.neocities.org/Community](https://howlcon.neocities.org/Community)
